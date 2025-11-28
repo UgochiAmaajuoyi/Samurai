@@ -23,14 +23,5 @@
  
 - **Email:** (ugochiamaajuoyi@gmail.com)
 
----
-
-###  2026 Goals
-✔ Build 5 solid GitHub projects  
-✔ Complete German A2 exam  
-✔ Apply to 200+ Ausbildung positions  
-✔ Relocate to Germany for training & skill development  
-
----
 
 Thanks for visiting my profile!_
