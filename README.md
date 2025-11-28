@@ -20,8 +20,8 @@
 
 
 ###  connect With Me
-- **LinkedIn:** (add link here)  
-- **Email:** (optional)
+ 
+- **Email:** (ugochiamaajuoyi@gmail.com)
 
 ---
 
